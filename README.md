@@ -1,1 +1,1 @@
-# [My Youtube](https://youtube.com/@zaidenco/).
+# [My Youtube](https://www.youtube.com/@zaidenco).
